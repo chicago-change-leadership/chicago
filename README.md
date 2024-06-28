@@ -11,3 +11,13 @@ Still not sure? Just submit a pull request! The fact you're considering means th
 
 And thank you for your help!
 
+#Chicago Companies
+- [Forrest Advisors](https://www.forrestadvisors.com)
+
+#Chicago Groups
+
+#Chicago Job Boards
+
+#Chicago Remote Working Locations
+
+#Other Links
